@@ -1,1 +1,1 @@
-Logika
+Logika 2025
